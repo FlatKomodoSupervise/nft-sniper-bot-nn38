@@ -1,4 +1,4 @@
-# 
+# Get the ultimate nft sniper bot with quantitative NFT Floor Sweeper for nft sniper bot | metadata-parsing & royalty-calculator. Featuring metadata-parsing and royalty-calculator,
 
 
 
